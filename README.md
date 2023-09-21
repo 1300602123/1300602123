@@ -1,4 +1,4 @@
-# Warning: This People is FW(loser) ,You don't need to see him.
+
 - 👋 Hi, I’m fk
 - 👀 I'm interested in what I am interested in.
 - 🌱 I’m currently learning how to live
